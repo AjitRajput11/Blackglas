@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://sites.google.com/view/vishwajeet-rajput/home](https://sites.google.com/view/vishwajeet-rajput/home)
 
-- 📫 How to reach me **vishwajeet4rajput@gmail.com**
+- 📫 How to reach me **er.ajitrajput@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1_QfXdXcU_hZ67CEWzSEdZUVbueVoF-2Z/view](https://drive.google.com/file/d/1_QfXdXcU_hZ67CEWzSEdZUVbueVoF-2Z/view)
 
